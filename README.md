@@ -10,7 +10,7 @@ Sound like fun? Come join us!
 
 Meetings happen on the third Tuesday of every month. 
 
-Our next meeting will take place on **September 19th at 5:30pm.** (Location: TBD) 
+Our next meeting will take place on **October 16th at 5:30pm.** (Location: TBD probably MCPL or Cowork) 
 
 [Calendar](https://calendar.google.com/calendar/embed?src=bloomington.in.gov_3e0ug3iakbapl022s13ttgn1o8%40group.calendar.google.com&ctz=America/New_York)
 
